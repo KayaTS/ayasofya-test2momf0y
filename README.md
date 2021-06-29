@@ -1,1 +1,0 @@
-# ayasofya-test2momf0y
